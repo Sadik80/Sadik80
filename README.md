@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sadik80
 - 👀 I’m interested in web and app development.
-- 🌱 I’m currently learning backend.
+- 🌱 I’m currently learning full stack development.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: he
