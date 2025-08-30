@@ -19,6 +19,7 @@
 🌐 Connect with Me:
 --> LinkedIn - linkedin.com/in/sadik-gonarkar-88906b255
 --> Discord - saddu_yt.
+--> X - https://x.com/SadikGonarkar?s=09
 
 
 ✨ “Code is not just about syntax; it’s about building something that matters.”
