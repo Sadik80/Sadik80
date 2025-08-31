@@ -17,8 +17,11 @@
 
 
 🌐 Connect with Me:
---> LinkedIn - linkedin.com/in/sadik-gonarkar-88906b255
+
+--> LinkedIn - https://www.linkedin.com/in/sadik-gonarkar-88906b255?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
 --> Discord - saddu_yt.
+
 --> X - https://x.com/SadikGonarkar?s=09
 
 
